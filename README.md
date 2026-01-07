@@ -1,6 +1,6 @@
 # Hey there :wave:
 
-> My name is Fredrick O' Cilamhain. I am a second year college student living in my parents home (sad ikr?) in Dublin, Ireland. There are two sides to myself. Fred, myself, a carefree - happy-go-lucky - academic, and O' Cilamhain, my blood, the fragments of a broken family recklessly glued together. This is my story.
+My name is Fredrick O' Cilamhain. I am a second year college student living in my parents home (sad ikr?) in Dublin, Ireland. There are two sides to myself. Fred, myself, a carefree - happy-go-lucky - academic, and O' Cilamhain, my blood, the fragments of a broken family recklessly glued together. This is my story.
 
 `December 3rd, 1655`
 
